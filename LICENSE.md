@@ -1,4 +1,4 @@
-# 
+# instant Affinity Designer for macOS Script | AI-assisted design + color correction is the best Affinity Designer for macOS script, featuring AI-assisted design and color
 
 
 
